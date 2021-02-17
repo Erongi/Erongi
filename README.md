@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Punch from Thailand
+- 🎓I’m currently studies in KMITL
