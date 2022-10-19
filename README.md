@@ -5,4 +5,4 @@
 
 ## About Me
 - :trollface: Hi, I’m Passakorn Arunsodsai from Thailand.
-- 🎓 I'm currently studying at KMITL.
+- 🎓I'm graduated from the Faculty of Information Technology KMITL.
